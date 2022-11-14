@@ -1,6 +1,6 @@
 Household Waste Amounts by District(Istanbul)
 
-![alt text](https://www.freepik.com/premium-photo/halic-metro-bridge-suleymaniye-view-fatih-district-istanbul-turkey_16561886.htm)
+![alt text](https://wallpaperaccess.com/full/273905.jpg)
 
 
 The world is facing many problems today. One of them is enviromental pollution. Environmental pollution is the introduction of contaminants into the natural environment that cause adverse change.
