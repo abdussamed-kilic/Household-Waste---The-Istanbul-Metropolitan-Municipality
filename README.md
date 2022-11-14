@@ -1,6 +1,6 @@
 Household Waste Amounts by District(Istanbul)
 
-![alt text]([https://wallpaperaccess.com/full/273905.jpg](https://www.teahub.io/photos/full/272-2721658_turkey-istanbul-wallpaper-4k.jpg)
+![alt text]([https://wallpaperaccess.com/full/273905.jpg](https://www.teahub.io/photos/full/272-2721658_turkey-istanbul-wallpaper-4k.jpg))
 
 
 The world is facing many problems today. One of them is enviromental pollution. Environmental pollution is the introduction of contaminants into the natural environment that cause adverse change.
