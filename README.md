@@ -1,4 +1,4 @@
-#**Household Waste Amounts by District(Istanbul)**
+# **Household Waste Amounts by District(Istanbul)**
 
 ![alt text](https://cdn.wallpapersafari.com/36/51/dFj17I.jpg)
 
